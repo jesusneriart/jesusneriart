@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @jesusneriart
-- 👀 I’m interested in ...
 - 🌱 I’m currently learning Digital Interactive Design
 - 📫 Reach me at contacto@jesusneri.art
 
